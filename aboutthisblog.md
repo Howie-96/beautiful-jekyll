@@ -1,0 +1,1 @@
+Yet another yet another... programming blog.
